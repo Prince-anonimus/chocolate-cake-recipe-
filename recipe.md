@@ -1,0 +1,1 @@
+Flour , Sugar , ChocoPowder , BakingSoda, BakingPowder and Salt Mix the all items and Next you add Eggs and ButterMilks , 1/2 cups of hot water ,1/2 vegitableoil ok mix the all items now bake the cake and enjoy the taste of cake
